@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rassie1
 - 👀 I’m interested in gym
-- 🌱 I’m currently learning box
+- 🌱 I’m currently learning inglés 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
